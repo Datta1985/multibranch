@@ -1,7 +1,5 @@
 New changes done by developer
 
-some more changes dondddddddeddd
+My first AWS Account was created on July.
 
-
-cccccc
 
